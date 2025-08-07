@@ -15,3 +15,12 @@ I specialize in:
 
 ## 🗂️ Portfolio Projects
 
+## Contact Me
+If you’d like to collaborate, discuss opportunities, or just connect:
+
+📧 Email: [cieloari1596@gmail.com]
+
+💼 LinkedIn: www.linkedin.com/in/andrea-arias-48013a377
+
+🌐 Portfolio Website: 
+
